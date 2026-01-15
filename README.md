@@ -1,5 +1,5 @@
 # Awesome Khobar
-I moved to Al-Khobar in August 2025. Here are my favorite list of places so far:
+List of places I really enjoyed since moving to Khobar in August 2025
 
 ## Restaurants
 
@@ -14,6 +14,9 @@ I moved to Al-Khobar in August 2025. Here are my favorite list of places so far:
 - Brasa De Brazil Khobar
 - Naranj Damascus
 - Kunafa Ali Abu Al Hous
+
+# Kids Fun Places
+- TODO
 
 ## Shopping Malls
 - Mall of Dhahran
