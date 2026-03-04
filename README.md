@@ -14,6 +14,9 @@ List of places I really enjoyed since moving to Khobar in August 2025
 - Brasa De Brazil Khobar
 - Naranj Damascus
 - Kunafa Ali Abu Al Hous
+- Burger Boutique -- expensive but worth it
+- Shawarma Tair -- Olaya
+- Al Habib Restaurant
 
 # Kids Fun Places
 - TODO
